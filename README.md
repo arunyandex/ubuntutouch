@@ -1,2 +1,0 @@
-# ubuntutouch
-emo by
